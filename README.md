@@ -4,7 +4,7 @@
 Меня зовут Мария.
 И я - аналитик данных.
 
-[<img src="https://i.postimg.cc/dtybNHX0/frame-2.jpg" width="150" height="150" style="float: right">](https://docs.google.com/presentation/d/1BKXdcvWmaz9ppEMn0q15R2zsvmOIht8H/edit?usp=sharing&ouid=111128292896476306228&rtpof=true&sd=true) [<img src="https://i.postimg.cc/XJ2rh7rn/https-drive-google-com-file-d-17-Cr-Y8-T1-Yt-RVJSq-Nuqk-HDut67t-Gee-d-BE-view-usp-sharing.jpg" width="150" height="150">](https://drive.google.com/file/d/1y99Y3EiyXD8ofs5GReLZqu-8kn7ERZC9/view?usp=sharing)     
+[<img src="https://i.postimg.cc/dtybNHX0/frame-2.jpg" width="150" height="150" style="float: right">](https://docs.google.com/presentation/d/1BKXdcvWmaz9ppEMn0q15R2zsvmOIht8H/edit?usp=sharing&ouid=111128292896476306228&rtpof=true&sd=true) [<img src="https://i.postimg.cc/XJ2rh7rn/https-drive-google-com-file-d-17-Cr-Y8-T1-Yt-RVJSq-Nuqk-HDut67t-Gee-d-BE-view-usp-sharing.jpg" width="150" height="150">](https://drive.google.com/file/d/1ERLhe2cXbyGG87nxOarfidhQ0rLHPIVl/view?usp=sharing)     
 Самопрезентация и резюме тут :point_up_2:
 
 А если вкратце, то тут :point_down:
